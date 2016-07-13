@@ -1,0 +1,9 @@
+D:\kinematik_mini\tyaga-Исследование 1
+D:\kinematik_mini\tyaga-Исследование 1
+D:\kinematik_mini\tyaga-Исследование 1
+D:\kinematik_mini\tyaga-Исследование 1
+D:\kinematik_mini\tyaga-Исследование 1
+D:\kinematik_mini\pitch_tyaga-Исследование 1
+D:\kinematik_mini\pitch_tyaga-Исследование 1
+D:\kinematik_mini\pitch_tyaga-Исследование 1
+D:\kinematik_mini\pitch_tyaga-Исследование 1
